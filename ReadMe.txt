@@ -1,0 +1,3 @@
+name of website : Yogax - Yoga And Meditation HTML5 Template
+price : $59
+about This Website : Yogax is a perfect and awesome HTML5 template. Yogax perfect for modern yoga, meditation, Yoga Studio, fitness & lifestyle and related website. Yogax Template offers various personalization options to help you give the look you require on your website. Yogax every section carefully designed blocks, which are easy to edit and customize to fit your needs.Yogax has been made with the think of modern age demand and also added the currently best features. Yogax comes with high-quality home pages and many built-in awesome inner pages. Yogax is one of the best ways to present and promote your yoga website.
